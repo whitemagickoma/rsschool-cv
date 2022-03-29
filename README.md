@@ -1,1 +1,1 @@
-# rsschool-cv
+https://whitemagickoma.github.io/rsschool-cv/cv
